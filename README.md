@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **josecespedesant@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1ZOoj28zOv8vLxKGlozJeTw2mYUUXpkRV/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1oPqCflzP_SJTl1oomugxROXOmBNpIdTp/view?usp=sharing)
 
 - ⚡ Fun fact **I just started running, maybe it's my mid twenties phase/crisis 🤔**
 
